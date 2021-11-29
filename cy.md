@@ -28,7 +28,7 @@ Without even trying to guess at its answer even once?
 These further questions were posed for discusing the importance of valuable formal methods in cybernetics.
 And just before we dwell into those methods, here is one final, quintessential question:
 
-> What is indeed many when it is two or more, but the ssame as none when it is one? 
+> What is indeed many when it is two or more, but the same as none when it is one? 
 
 If you already obtained *the* answer to that question then being asked the very same question again and again is merely to highlight the loss of a sense of inquisitiveness once you *know* the answer.
 
