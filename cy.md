@@ -12,7 +12,8 @@ But the same as none when it is one?
 Click [here](https://github.com/lightning-chasers/options-decisions/blob/master/README.md) for the answer.
 
 ### The Riddle's Purpose
-The above riddle is posed to instill into a reader, the feeling or emotion of "being curious."    
+The above riddle is posed to instill into a reader, the feeling or emotion of "being curious."   
+
 Curiousity is the essence and basis of exploration, discovery and innovation.
 Without any sense of wanting or needing to know an answer, the question pertaining to the answer remains unwarranted.
 So congtratulations to you if you were able to attain the riddle's answer by yourself, solely through your contemplative efforts.
