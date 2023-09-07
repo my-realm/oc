@@ -10,7 +10,7 @@ A systematic method of building a taxonomy of conceivable concepts was utilized 
 
 - [Pāṇini](https://en.wikipedia.org/wiki/P%C4%81%E1%B9%87ini#Legacy) (most likely around 400 - 350 BC), in producing a rigorous set of rules for composing phonemes or root words, to create compound words via "generative grammar" in Sanskrit language 
 
-- Kong Fuzi or Confucius (see, [Hundred Schools of Thought](https://en.wikipedia.org/wiki/Hundred_Schools_of_Thought)) (around 500 BC), in describing the basis of zeal, virtues, and "accurate perceptions" 
+- Kong Fuzi or Confucius (see, [Hundred Schools of Thought](https://en.wikipedia.org/wiki/Hundred_Schools_of_Thought), which existed around 500 BC), in describing the basis of zeal, virtues, and "accurate perceptions" 
 
 <br>
 
