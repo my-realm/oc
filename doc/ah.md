@@ -69,7 +69,7 @@ So, what type of hindrances might exist that prevent one from being able to reco
  
 Also, a number of ways of describing "relatedness" among things, exists in linguistics, where the part-whole or abstract-tangible relationship between things being taken into consideration, need not be due to inclusion of one thing within another thing, based on formulae that can be derived from known corollaries and principles. Nor do they need to be derived from any empirically verifiable laws contained in an up-to-date compendium of physical sciences. These ways include: 
 
-- [Hyponymy and hypernymy](https://en.wikipedia.org/wiki/Hyponymy_and_hypernymy), which describes the identifiable sub-types or sub-groups called "hyponyms", that are conventionally associated with an identifiable type or group called the "hypernym", within the culturally popular lexicon used by a speech community. The sub-type or sub-group is usually a specific instance, or a particular example, of a generic type of a thing. Hyponyms and Hypernyms that exist in one language, might not exist in another, for anthropological reasons. 
+- [Hyponymy and Hypernymy](https://en.wikipedia.org/wiki/Hyponymy_and_hypernymy), which describes the identifiable sub-types or sub-groups called "hyponyms", that are conventionally associated with an identifiable type or group called the "hypernym", within the culturally popular lexicon used by a speech community. The sub-type or sub-group is usually a specific instance, or a particular example, of a generic type of a thing. Hyponyms and Hypernyms that exist in one language, might not exist in another, for anthropological reasons. 
 
 - [Meronymy and Holonymy](https://en.wikipedia.org/wiki/Meronymy_and_holonymy), which describe the physical entities that join or assemble together as parts, to form a physically whole item. 
 
@@ -91,7 +91,7 @@ Also, a number of ways of describing "relatedness" among things, exists in lingu
 
 <br>
 
-You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: polysemous words; synonyms; non-standard punctuation; and encrypted verbiage. 
+You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: noisy communication channels; cultural and individual differences; polysemous words; synonyms; non-standard punctuation; and encrypted verbiage. 
 
 Now, consider the difficulty in deciphering an intercepted communication being publicly, or privately exchanged between people who are multi-cultural polyglots, and who happen to use a mash-up of words from foreign sounding languages, along with "insider meanings" ascribed to those words based on a non-mainstream "sub-culture", whereby, those meanings are only comprehensible to members of the niche group of people who frequently use those words and phrases, within a particular sociological setting. 
 
