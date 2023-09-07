@@ -1,4 +1,4 @@
-## History of Abstraction Hierarchy 
+## History of Abstraction Hierarchies 
 
 Let's look at how modern day usage of "abstraction" in linguistics and computer science has come into existence, from an anthropological perspective.
 
