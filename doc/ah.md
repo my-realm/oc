@@ -53,7 +53,7 @@ Additionally, according to various mythologies, there is a much worse version of
 
 Well, would you be surprised if the current universe, world, or realm, that you are living in, happens to be the one where you had to "abandon all hope at its threshold", before entering into it? Would it be odd, or strange, for you to learn that the ultimate tragedy and ploy of this realm, is for you to never be able to realize what "true hope" is, because the only thing feasible in this realm is "false hope", along with the inability to ever truly figure out the difference between genuine hope versus false hope. Hope for what, you ask? Hope for anything whatsoever. 
 
-You can be assured that if you are reading this, you are still within the realm where profanities abound in and around you. But, there might still be a way to attain "transcendence", even if this is, in fact, the realm where true hope cannot exist. One possible way to exit this realm, is via fulfillment of you duty. Duty does not require hope as an input condition. Hope versus despair, or hopefulness versus hopelessness are things that duty does not need to be bothered about. 
+You can be assured that if you are reading this, you are still within the realm where profanities abound in and around you. But, there might still be a way to attain "transcendence", even if this is, in fact, the realm where true hope cannot exist. One possible way to exit this realm, is via fulfillment of your duty. Duty does not require hope as an input condition. Hope versus despair, or hopefulness versus hopelessness are things that duty does not need to be bothered about. 
 
 Duty towards what, you ask? Or more fundamentally, what is the meaning of the word "duty", for a human being such as you or me? 
 
@@ -63,7 +63,9 @@ Supposedly, as soon as one attains the exact duty-bound mindset towards a "true 
 
 Is destiny even an actual thing worth believing in? If it is your destiny to not believe in destiny, then your destiny to do so, will be actualized. If your destining is to remain ambivalent or indifferent about believing in destiny, then your destiny to do so, will be actualized. If your destiny is to believe in that concept, then your destiny to do so will be realized. For, "one is guaranteed to meet their destiny on the path they took to avoid it." 
 
-So, what type of hindrances might exist that prevent one from being able to recognize their own purpose of existence? And can there be a single, ultimate purpose, that comes to fruition out of a culmination of experiences and pursuits, during an overall lifetime? 
+So, what type of hindrances might exist that prevent a person from being able to recognize their own purpose of existence? And can there be a single, ultimate purpose, that comes to fruition out of a culmination of experiences and pursuits, during an overall lifetime? 
+
+When tangible answers to such abstract questions are attained, they at least, provide relief from basic existential concerns and struggles. 
 
 ### Culturally Defined Relationships Among Words 
  
@@ -91,7 +93,7 @@ Also, a number of ways of describing "relatedness" among things, exists in lingu
 
 <br>
 
-You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: noisy communication channels; cultural and individual differences; polysemous words; synonyms; non-standard punctuation; and encrypted verbiage. 
+You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: noisy communication channels; cultural and individual differences; polysemous words; synonyms; non-standard punctuation; slang phrases; rhetorical devices; and encrypted verbiage. 
 
 Now, consider the difficulty in deciphering an intercepted communication being publicly, or privately exchanged between people who are multi-cultural polyglots, and who happen to use a mash-up of words from foreign sounding languages, along with "insider meanings" ascribed to those words based on a non-mainstream "sub-culture", whereby, those meanings are only comprehensible to members of the niche group of people who frequently use those words and phrases, within a particular sociological setting. 
 
