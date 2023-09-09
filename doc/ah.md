@@ -95,7 +95,7 @@ Also, a number of ways of describing "relatedness" among things, exists in lingu
 
 <br>
 
-You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: noisy communication channels; cultural and individual differences; polysemous words; synonyms; non-standard punctuation; slang phrases; rhetorical devices; and encrypted verbiage. 
+You may have, or will eventually come to appreciate that, describing human thoughts and articulations is difficult because of the ambiguity intrinsic to communications that include: noisy communication channels; cultural and individual differences; polysemous words; synonyms; non-standard punctuation; slang phrases; dense jargon; esoteric references; rhetorical devices; and encrypted verbiage. 
 
 Now, consider the difficulty in deciphering an intercepted communication being publicly, or privately exchanged between people who are multi-cultural polyglots, and who happen to use a mash-up of words from foreign sounding languages, along with "insider meanings" ascribed to those words based on a non-mainstream "sub-culture", whereby, those meanings are only comprehensible to members of the niche group of people who frequently use those words and phrases, within a particular sociological setting. 
 
