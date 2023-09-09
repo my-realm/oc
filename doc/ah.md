@@ -61,7 +61,7 @@ Hmm... I wonder if there can be any sliver of genuine hope, for a human being to
 
 Supposedly, as soon as one attains the exact duty-bound mindset towards a "true calling", the entire life of such a person becomes readily reconfigured to actualize all the necessary stipulations of that calling. And things like sadness, happiness, hope as well as despair, vanish, for the person who becomes duty-bound within the pursuit of the purpose they were "destined" to serve. 
 
-Is destiny even an actual thing worth believing in? If it is your destiny to not believe in destiny, then your destiny to do so, will be actualized. If your destining is to remain ambivalent or indifferent about believing in destiny, then your destiny to do so, will be actualized. If your destiny is to believe in that concept, then your destiny to do so will be realized. For, "one is guaranteed to meet their destiny on the path they took to avoid it." 
+Is destiny even an actual thing worth believing in? If it is your destiny to not believe in destiny, then your destiny to do so, will be actualized. If your destiny is to remain ambivalent or indifferent about believing in destiny, then your destiny to do so, will be actualized. If your destiny is to believe in that concept, then your destiny to do so will be realized. For, "one is guaranteed to meet their destiny on the path they took to avoid it." 
 
 So, what type of hindrances might exist that prevent a person from being able to recognize their own purpose of existence? And can there be a single, ultimate purpose, that comes to fruition out of a culmination of experiences and pursuits, during an overall lifetime? 
 
