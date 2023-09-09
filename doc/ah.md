@@ -35,7 +35,7 @@ Another common way to talk about the meaning of a word and for describing things
 
 However, it just so happens that anything that may seem abstract and generic to one person, may seem rather tangible and specific to another. The specificity of any word, phrase, or a sentence, in terms of its meaning and usage, is naturally dependent on cultural and ecological factors prevalent during a conversation between a group of people. Furthermore, via published materials, "a conversation" can span a vast diaspora of people over the globe, across decades or even centuries of years in time. 
 
-As such, describing the extent to which a concept or an idea is tangible or not, is in itself, a chore that requires abstract thinking and analytical aptitude. To simplify that chore, one can use: 
+As such, describing the extent to which a concept or an idea is tangible or not, is in itself, a chore that requires abstract thinking and analytical aptitude. So to simplify that chore, one can use: 
 
 - a self-centric perspective where a person describes things that are tangible and understandable to themselves;
 
@@ -43,7 +43,7 @@ As such, describing the extent to which a concept or an idea is tangible or not,
 
 - a non-anthropocentric perspective that does not involve things pertaining to any one human being, and not even to any group of people based on anthropology or ancestry. 
 
-The non-anthropocentric perspective is almost always restricted to topics like "pure math" and "theoretical physics", practitioners of which, conveniently neglect the fact that any type of humanities, mathematics, or physical sciences appreciable by human beings, would naturally be constrained by human ecology, sociology, psychology, and physiology. 
+Among available perspectives, the non-anthropocentric one is almost always restricted to topics like "pure math" and "theoretical physics", practitioners of which, conveniently neglect the fact that any type of humanities, mathematics, or physical sciences appreciable by human beings, would naturally be constrained by human ecology, sociology, psychology, and physiology. 
 
 Now, all of those things are supposedly constrained by phenomena existent within pure "spirituality", which many people like to call "meta-physics." 
 
