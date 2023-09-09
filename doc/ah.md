@@ -151,7 +151,7 @@ In the pursuit of virtuosity and happiness via "good" deeds, how do people manag
 
     - Am I merely venting in the above kinds of articles? No. 
 
-    Those articles serve as a resource within the serious and legal purpose of evaluating the penalties and punishments that are to be levied upon those types of wrongdoers, in due course of time. 
+    Such articles serve as a resource within the serious and legal purpose, of evaluating the penalties and punishments that are to be levied upon those types of wrongdoers, in due course of time. 
 
 [^3]: Bisantz, Ann M. & Vicente, Kim J. (1994). “Making the Abstraction Hierarchy Concrete”, *International Journal of Human-Computer Studies Vol 40-1, pp. 83-117.* Available: http://www.eng.buffalo.edu/~bisantz/pubs/revision.html
 
