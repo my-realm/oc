@@ -143,7 +143,7 @@ Has there ever been a shortage of saints, sages, high priests, astute grand mast
 
 In the pursuit of virtuosity and happiness via "good" deeds, how do people manage to completely overlook ecological degradation in various parts of the world and in their own cities, as an output of their so-called rightful pursuits? 
 
-[^1]: Activities of bad public service agencies and agents, such as these ones: https://github.com/true-hindsight/grim-realities/tree/main/disclosed 
+[^1]: Activities of certain bad, public service agents and agencies in Ontario, Canada, such as these ones: https://github.com/true-hindsight/grim-realities/tree/main/disclosed 
 
 [^2]: Here are a set of excruciatingly lengthy and detailed articles about those kinds of bad university programs, and their problematic ecosystem: 
 
