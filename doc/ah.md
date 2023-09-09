@@ -49,7 +49,7 @@ Now, all of those things are supposedly constrained by phenomena existent within
 
 Meta-physic is often explained as the so-called "true reality", which is devoid of all falsehoods and anything "bad." It is supposedly immaculate, is unchanging and unerring, and is inaccessible to all things that are "profane." The rest of B-grade reality, which is available to mere mortals, is somehow illusory, deceptive, and full of machinations that cause pain and suffering to those who have yet to transcend, the "superficial reality", of mortal existence. 
 
-Additionally, according to various mythologies, there is a much worse version of reality where bad things as well as pain and suffering are the only types of things that can be experienced by it inhabitants. That place is typically known as purgatory or hell. Does it *actually* exist?
+Additionally, according to various mythologies, there is a much worse version of reality where destruction of meaning, as well as pain and suffering, are the only types of things that can be experienced by it inhabitants. That place is typically known as purgatory or hell. Does it *actually* exist?
 
 Well, would you be surprised if the current universe, world, or realm, that you are living in, happens to be the one where you had to "abandon all hope at its threshold", before entering into it? Would it be odd, or strange, for you to learn that the ultimate tragedy and ploy of this realm, is for you to never be able to realize what "true hope" is, because the only thing feasible in this realm is "false hope", along with the inability to ever truly figure out the difference between genuine hope versus false hope. Hope for what, you ask? Hope for anything whatsoever. 
 
